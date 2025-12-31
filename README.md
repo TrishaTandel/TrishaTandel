@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm looking for a job<br>I'm passionate about Sftware developer and Cyber Security Analyst<br>
+I'm looking for a job<br>I'm passionate about Software developer and Cyber Security Analyst<br>
 
 
 ## 🌐 Socials:
